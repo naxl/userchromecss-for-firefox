@@ -7,6 +7,10 @@ Also do share your customization in this theme thread so that others can adapt t
 
 Screenshot#1!
 
-[Screenshot_6](https://user-images.githubusercontent.com/50261506/189897731-8079e57f-afbe-4521-9d8c-c56513b5f474.png)
+![Screenshot_7](https://user-images.githubusercontent.com/50261506/189898250-77853dce-3891-41f2-b1e0-6d82210e252b.png)
 
-Screenshot#2!![Screenshot_5](https://user-images.githubusercontent.com/50261506/189897832-eb5da7e6-ea23-40fb-9da9-7856ca2816c3.png)
+
+
+Screenshot#2!
+
+![Screenshot_5](https://user-images.githubusercontent.com/50261506/189897832-eb5da7e6-ea23-40fb-9da9-7856ca2816c3.png)
